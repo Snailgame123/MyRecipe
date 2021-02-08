@@ -1,0 +1,26 @@
+# The recipe:-
+
+-put baking paper inside the batter 
+-in a bigcup separately add:-
+-1 cup milk
+-1 cup sugar powder
+-1/2 cup oil
+-1 tbsp vinegar
+-1/2 tbsp vanilla assence
+-mix well
+-keep aside for 5 mins and mix again
+-1 and 1/2 cup all purpose flour
+-2 tbsp cocoa powder
+-1 tsp baking powder
+-1/2 tsp baking soda
+-Sieve
+-mix very well
+-2 tbsp milk and mix again
+-cake batter is ready
+-pour the batter
+-preheat the pan for 10 mins on medium flame
+-after 10 mins, put the cake in
+-Bake it for 50-55 mins on low flame
+-after 55mins, demould the cake
+-remove the baking paper
+-DONE :)
